@@ -166,4 +166,4 @@ Delusion, pride, and ego are many wild, dangerous forests. All kinds of twisted 
 
 Those who lack faith as their provision for the journey, who do not have the company of saints, and who do not love Rama - for them this lake is completely unreachable. Doha 38
 
-Even if someone struggles hard and reaches this place, the moment they arrive, drowsiness and cold overtake them. The terrible cold of dullness grips their heart. Though they have come, the unfortunate ones cannot bathe. Chaupai
+Even if someone struggles hard and reaches this place, the moment they arrive, drowsiness and cold overtake them. The terrible cold of dullness grips their heart. Though they have come, the unfortunate ones cannot bathe. Chaupai 1
