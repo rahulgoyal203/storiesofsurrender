@@ -29,6 +29,44 @@
 
 ---
 
+## VIDEO DESCRIPTION
+
+```
+I read the Ramcharitmanas every day because I'm trying to learn what Tulsidas knew — how to bow. How to surrender. How to love something greater than yourself.
+
+Day 2: Before Tulsidas begins his story, he does something unexpected. He calls himself a hypocrite — first among all the fakes. Then he reveals why Shiva survived drinking the cosmic poison, and why two simple letters hold more power than all other words combined.
+
+This is my daily practice. One verse at a time.
+
+─────────────────────────────
+
+TIMESTAMPS
+0:00 - The Poison That Gave Immortality
+0:30 - Introduction
+0:45 - The Poet's Honest Confession
+3:30 - Why Sing of the Unspeakable
+5:30 - The Bridge of the Ancient Poets
+7:30 - Valmiki: The Robber Who Became the First Poet
+9:30 - Honoring Saraswati, Ganga, and Shiva
+11:30 - Bowing to Ayodhya and the Holy Family
+14:00 - Bowing to King Janaka and the Brothers
+16:00 - Bowing to Hanuman and All Devotees
+17:00 - Bowing to Sita and Rama
+18:30 - The Glory of Rama's Name
+23:00 - What's Next
+
+─────────────────────────────
+
+ABOUT THIS SERIES
+The Ramcharitmanas is a 16th-century retelling of the Ramayana by the poet-saint Tulsidas. Written in Awadhi (a dialect of Hindi), it has been the devotional heart of North India for over 400 years. I'm reading it slowly, trying to understand what surrender really means.
+
+─────────────────────────────
+
+#ramcharitmanas #tulsidas #ramayana #bhakti #hinduism #spirituality #surrender #devotion #rama #sita #hanuman
+```
+
+---
+
 ## HOOK (First 30 Seconds)
 
 ```
@@ -53,7 +91,17 @@ Let's read.
 ## MAIN SCRIPT WITH FULL READING
 
 ```
-[0:30-2:00]
+[0:30-0:45]
+[INTRO]
+
+I'm Rahul. I read the Ramcharitmanas every day because I'm trying to learn
+what Tulsidas knew - how to bow. How to surrender. How to love something
+greater than yourself. I don't have all the answers - I'm just
+someone trying to surrender, one verse at a time.
+
+Day two.
+
+[0:45-2:15]
 [SECTION: The Poet's Honest Confession]
 
 Tulsidas speaks about his own faults with striking honesty -

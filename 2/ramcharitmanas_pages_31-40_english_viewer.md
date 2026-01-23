@@ -10,6 +10,10 @@ He calls himself a hypocrite. First among all the fakes.
 
 Let's read.
 
+I'm Rahul. I read the Ramcharitmanas every day because I'm trying to learn what Tulsidas knew - how to bow. How to surrender. How to love something greater than yourself. I don't have all the answers - I'm just someone trying to surrender, one verse at a time.
+
+Day two.
+
 
 ## The Poet's Honest Confession
 
